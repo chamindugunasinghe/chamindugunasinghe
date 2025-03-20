@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Figma**
 
-- 📫 How to reach me **chamindugunasinghe**
+- 📫 How to reach me **chamindugunasinghe@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
